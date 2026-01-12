@@ -1,0 +1,2 @@
+# exponati
+transcripciió a natiu
